@@ -1,1 +1,1 @@
-Ceci est la maquette de whatsapp realiser sur canva
+Ceci est la maquette de whatsapp realisée sur Canva
